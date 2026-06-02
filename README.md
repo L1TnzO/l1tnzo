@@ -38,6 +38,6 @@ Soon pinned:
 
 ### Connect
 
-[LinkedIn](https://www.linkedin.com/in/enzo-loren-b4219b264/) · [Blog](enzoloren.me) · [X](https://x.com/enzolorendev)
+[LinkedIn](https://www.linkedin.com/in/enzo-loren-b4219b264/) · [Blog](https://www.enzoloren.me) · [X](https://x.com/enzolorendev)
 
 Spanish (native) · English (B2/C1) · open to remote — LATAM / US
