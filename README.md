@@ -1,5 +1,3 @@
-## Hi there 👋
-
 # Enzo Loren
 
 **AI Engineer — Agentic & Multimodal Systems.** I build systems where AI earns its place: cutting costs, removing manual work, or making operationally unfeasible things viable.
